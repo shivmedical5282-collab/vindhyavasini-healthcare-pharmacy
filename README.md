@@ -1,1 +1,1 @@
-# vindhyavasini-healthcare-pharmacy
+# Vindhyavasini-healthcare-pharmacy
